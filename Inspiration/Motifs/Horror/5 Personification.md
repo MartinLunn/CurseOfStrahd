@@ -1,0 +1,9 @@
+- Darkness is a silent crowd that follows the characters everywhere and stares at then while they sleep
+- Trees are towering giants that stand idle yet ever watchful as characters face the perils of the Svalich Woods alone
+- groaning house 
+- wailing wind
+- grasping mud
+- squatting chest
+- torches sputter nervously
+- rusty hinges shatter silence with they sudden cries of anguish
+- cobwebs quietly beckon us  to our doom

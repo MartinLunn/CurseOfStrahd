@@ -1,0 +1,1 @@
+When players glance into mirror, pool of water, etc. they see older/decrepit version of themselves

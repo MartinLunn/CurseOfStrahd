@@ -1,0 +1,1 @@
+Tarokka reading for each player

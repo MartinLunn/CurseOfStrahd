@@ -1,0 +1,1 @@
+Every night, thousands of bats fly from the castle to feed
