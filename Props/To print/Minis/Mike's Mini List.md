@@ -5,7 +5,7 @@ Flynn (this is a companion character who I'll make in hero forge and send to you
 Fenn (same deal as above) 
 Ismark (painted) 
 Ireena (painted) 
-Wolves (10?) 
+Wolves (10?) (65% of nomads from artisan's guild)
 Nightwalkers (2) 
 Scarecrows (10) 
 Baba Lysaga
